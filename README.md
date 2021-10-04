@@ -1,2 +1,2 @@
-# krishnaTeja.github.io
+# krishna.github.io
 Hello!!!
